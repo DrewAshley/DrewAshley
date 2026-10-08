@@ -1,5 +1,6 @@
 # Drew Ashley — Podcast & Video Producer, Editor & Audio Engineer
-About me - Multi-Interdisciplinary, I produce and edit podcasts, video interviews, and narrative content—from raw recordings to finished episodes, trailers, and social clips. My work combines storytelling, professional audio, video editing, sonic branding, and publishing. I also help launch podcasts with the systems and creative direction needed to sustain them beyond season one.
+About me:
+Multi-Interdisciplinary, I produce and edit podcasts, video interviews, documentaries, and narrative content—from raw recordings to finished episodes, trailers, and social clips. My work combines storytelling, professional audio, video editing, sonic branding, and publishing. I also help launch podcasts with the systems and creative direction needed to sustain them beyond season one. I am a top 10% global ranking podcast producer, top rated freelancer with 100% success rate and 5 Star reviews. 
 
 Selected work - Long Form Video Editing: https://www.youtube.com/watch?v=o3Mo1bt3qmU&t=8s
 
