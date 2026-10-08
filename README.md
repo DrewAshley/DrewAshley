@@ -1,35 +1,86 @@
-# DrewAshley — Podcast & Video Producer, Editor & Audio Engineer
-About me:
-Multi-Interdisciplinary producer and editor for podcasts, video interviews, documentaries, and narrative content—from raw recordings to finished episodes, trailers, and social clips. My work combines storytelling, professional audio, video editing, sonic branding, and publishing. I also help launch podcasts with the systems and creative direction needed to sustain them beyond season one. I am a top 10% global ranking podcast producer, top rated freelancer with 100% success rate and 5 Star reviews. 
+# Drew Ashley
+### Multimedia Producer & Editor
+**Podcasts · Documentaries · Long-Form Storytelling · Podcast Launches · Sonic Branding**
 
-##Selected work - Long Form Video Editing: https://www.youtube.com/watch?v=o3Mo1bt3qmU&t=8s
+[**View / Download My CV**](./Drew-Ashley-CV.pdf) · [**Portfolio & Client Reviews**](https://www.upwork.com/freelancers/neptunestudio) · [**Email Me**](mailto:neptunestudio@pm.me)
 
-##Selected work - Short Form Video Editing: https://www.youtube.com/shorts/IT1HJ-hv9rE
+> **I BRIDGE HUMAN CONNECTION THROUGH STORY.**
 
-##Selected work - Episode Video Trailer: https://www.youtube.com/shorts/1fHn-lZ8KRM
+Give me the raw recordings, interviews, or footage. I’ll turn them into finished media.
 
-##Selected work - Audio Editor: https://open.spotify.com/episode/05hXPWyVRn9u7SxWl3jO3M?si=d4452c4837a944ed
+I’m a Multimedia Producer & Editor specializing in **Podcasts, Documentaries & Long-Form Storytelling**, with a second specialty in **Podcast Launches & Sonic Branding**.
 
-##Selected work - Documentary Editing - https://www.youtube.com/watch?v=h-bI0sRNcVHc  Vertical Reel - https://www.youtube.com/shorts/geeyXDisCDs
+My background spans podcast production, film/TV post-production, professional audio, music, sound design, and video—giving me a multidisciplinary understanding of how story, sound, and image work together.
 
-#Production credits:
-- Boundless Body Podcast with Dr. Brian Tierney (Producer)
-- Nature's Ledger Podcast with Deborah Lehr (Audio Editor)
-- The IBS Dietitian Podcast with Kirsten Jackson (Video Editor)
-- Fully Confused Podcast with Kajal Mathuria (Audio Editor, Thumbnails, Trailers)
-- The Real Us Podcast with Joy & Gavin Taylor (Video Editor)
-- Can We Trust Each Other Podcast with Randall Paul & John Morehead (Video Editor)
+**You focus on the story. I handle what happens after you hit stop.**
 
-#Credentials & tools 
-- Certified Podcast Manager
-- Certified Mixing & Mastering Engineer
-- Verified Descript Video Editing Expert
-- Certified SEO & Social Media Manager
-- Certified in Google Ads & Analytics
-- Tools: Reaper, Davinci, Premier Pro, Photoshop, Canva, Descript, Slack, Zoom, ChatGTP, Izotope RX, ect..
+**Story • Sound • Video**
 
+Podcast Launch Specialist • 3-Year Client Partnership • Producer of a Top 10% Globally Ranked Podcast • Top-Rated Upwork Freelancer
 
-#Availability & Contact 
-- Available for all remote positions
-- Contact me via email: neptunestudio@pm.me
-- Contact me via Upwork: https://www.upwork.com/freelancers/neptunestudio
+---
+
+## Selected Work
+
+| Work sample | Watch / Listen | Skills represented |
+| --- | --- | --- |
+| Long-form video | [Watch the episode](https://www.youtube.com/watch?v=o3Mo1bt3qmU) | Interview editing, narrative pacing, audio and video post-production |
+| Short-form video | [Watch the short](https://www.youtube.com/shorts/IT1HJ-hv9rE) | Content repurposing, concise storytelling, social video editing |
+| Episode trailer | [Watch the trailer](https://www.youtube.com/shorts/1fHn-lZ8KRM) | Hook selection, promotional storytelling, trailer editing |
+| Audio podcast | [Listen to the episode](https://open.spotify.com/episode/05hXPWyVRn9u7SxWl3jO3M) | Dialogue editing, pacing, mixing and mastering |
+| Documentary | [Watch the film](https://www.youtube.com/watch?v=h-bI0sRNcVHc) · [Watch the vertical reel](https://www.youtube.com/shorts/geeyXDisCDs) | Documentary editing, long-form storytelling, promotional repurposing |
+
+[Explore more work and client feedback on Upwork →](https://www.upwork.com/freelancers/neptunestudio)
+
+## What I Bring to a Production
+
+### Multimedia Production & Editing
+- Podcast and documentary editing, from raw interviews and footage to finished media.
+- Dialogue cleanup, sound design, mixing and mastering.
+- Long-form video editing, trailers, reels and social clips.
+- Thumbnails, SEO show notes, newsletters and publishing.
+- Production coordination, guest outreach and monthly analytics.
+
+### Podcast Launches & Sonic Branding
+- Show positioning, launch planning and workflows built to sustain a podcast beyond season one.
+- Original intro/outro music, sound design and video intros.
+- Visual branding kits, cover art, banners and thumbnail templates.
+- Season trailers, initial episode production and promotional clips.
+- Hosting and platform setup, publishing preparation and audience retention planning.
+
+## Selected Production Credits
+
+| Podcast / Production | My contribution |
+| --- | --- |
+| **Boundless Body — Dr. Brian Tierney** | Producer; full audio/video post-production and guest booking. Top 10% globally ranked podcast. |
+| **The Real Us — Joy & Gavin Taylor** | Co-producer; video editing, full post-production and branding. |
+| **Nature’s Ledger — Paulson Institute** | Audio editing and sonic branding. |
+| **Fully Confused — Kajal Mathuria** | Audio editing, thumbnails and trailers. |
+| **Service Titans — Anton Taylor** | Audio editing, thumbnails and publishing. |
+| **Tholos Talks — Basilinna Institute** | Audio editing and sonic branding. |
+| **A Life of Expression — Annalise Oatman** | Video editing, thumbnails and publishing. |
+| **The IBS Dietitian — Kirsten Jackson** | Video editing. |
+| **Can We Trust Each Other? — Randall Paul & John Morehead** | Video editing. |
+
+## Credentials & Tools
+
+- **Certified Podcast Manager**
+- **Verified Descript Video Editing Expert**
+- **Mixing & Mastering Certifications**
+- **SEO & Social Media Management Certifications**
+- **Google Ads & Analytics Certifications**
+- **Bachelor’s Degree in Music Studies — Composition & Performance**
+- **Award-winning musician and Top-Rated Upwork freelancer**
+
+**Production:** Descript · REAPER · DaVinci Resolve · iZotope RX · CapCut  
+**Design & Collaboration:** Photoshop · Canva · Slack · Zoom
+
+## Availability & Contact
+
+Open to **remote full-time, part-time and contract opportunities** in multimedia production, podcast production, audio/video editing and podcast launches.
+
+- **Email:** [neptunestudio@pm.me](mailto:neptunestudio@pm.me)
+- **Portfolio & Reviews:** [upwork.com/freelancers/neptunestudio](https://www.upwork.com/freelancers/neptunestudio)
+- **CV:** [View / Download PDF](./Drew-Ashley-CV.pdf)
+
+*My CV is published under Drew Austin; my professional name is Drew Ashley.*
