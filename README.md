@@ -31,4 +31,5 @@ Credentials & tools
 
 Availability & Contact 
 - Available for all remote positions
-- Contact me via email (neptunestudio@pm.me) or Upwork
+- Contact me via email: neptunestudio@pm.me
+- Contact me via Upwork: https://www.upwork.com/freelancers/neptunestudio
